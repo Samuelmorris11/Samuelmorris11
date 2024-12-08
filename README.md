@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...sports, cybersecurity, cooking and learning new things
 - 🌱 I’m currently learning ...how to code from Python class 
 - 💞️ I’m looking to collaborate on ...anything I can learn from anybody
-- 📫 How to reach me ...at me email samuelmorris11@gmail.com 
+- 📫 How to reach me ...at my email samuelmorris11@gmail.com 
 - 😄 Pronouns: ...he/him
 - ⚡ Fun fact: ...I'm a grandpa and spend most of my extra time with the kids
 
